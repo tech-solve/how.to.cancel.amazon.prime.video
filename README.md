@@ -1,6 +1,6 @@
 # How to Cancel Amazon Prime Video
 
-[![how to cancel amazon prime video](redd.png)](https://icncomputer.com/how-to-cancel-amazon-prime-video/)
+[![how to cancel amazon prime video](redd.png)](https://amazonmytv.webconnectus.com)
 
 
 
